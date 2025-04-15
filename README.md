@@ -57,7 +57,7 @@ When I'm not analyzing data, I enjoy:
 
 ## 📫 Connect With Me
 
-- [Linkdin](#) *(Add your link here](https://www.linkedin.com/in/akeesh-m-959a08327/)*
+- [Linkdin](#)*https://www.linkedin.com/in/akeesh-m-959a08327/*
 
 ---
 
